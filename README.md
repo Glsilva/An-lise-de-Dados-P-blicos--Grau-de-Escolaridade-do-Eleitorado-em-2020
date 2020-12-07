@@ -1,0 +1,1 @@
+# An-lise-de-Dados-P-blicos--Grau-de-Escolaridade-do-Eleitorado-em-2020
